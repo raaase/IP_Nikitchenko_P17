@@ -1,1 +1,0 @@
-# IP_Nikitchenko_P17
